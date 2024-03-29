@@ -33,7 +33,7 @@ Sentor is celebrating 2 years of streaming on Twitch! Here's a list of awesome m
 | **30th January 23** | **Infinite Fusion shiny** | **https://clips.twitch.tv/CourteousWealthyElkDoritosChip-os5kGDMfO02YhXo4** |
 | **15th February 23** | **Golduck bet payout** | **https://clips.twitch.tv/CoweringAssiduousHorseradishLeeroyJenkins-hRvTj32CPT2XLBEM** |
 | **13th March 23** | **Fallout 4 - mod betrayal** | **https://clips.twitch.tv/DarlingTallSardineFloof-BMKtM3U3RE2c-kyF** |
-| **31st March 23** | **Sen watches IceJJFish** | **https://clips.twitch.tv/LovelyResoluteSaladKappa-KFDCwR0JjhXU7dCx** |
+| **31st March 23** | **Sen watches IceJJFish** | **https://clips.twitch.tv/CrowdedMildRadicchioKeyboardCat-bEIXzNW0JYBp9wkY** |
 | **3rd April 23** | **Learning the "Tig Skip"** | **https://clips.twitch.tv/BigDeterminedQueleaNinjaGrumpy-ngGvq1NkoxT3kZqt** |
 | **17th April 23** | **Unaware Mirror Coat in Kanto** | **https://clips.twitch.tv/InventiveHelplessSageTwitchRaid-9mRMKSrYQs5FZLbT** |
 | **20th April 23** | **Fallout 4 punch glitch** | **https://clips.twitch.tv/NurturingCautiousDotterelTwitchRaid-AS-mJmjTiHMiITZC** |
